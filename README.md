@@ -1,1 +1,1 @@
-God is now here
+God is everywhere
