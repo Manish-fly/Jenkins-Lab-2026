@@ -1,1 +1,1 @@
-God is nowhere
+God is now here
